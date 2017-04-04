@@ -1,3 +1,0 @@
-# AutoHamsters
-
-plz delete me
